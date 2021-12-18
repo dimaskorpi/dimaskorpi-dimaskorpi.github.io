@@ -1,2 +1,2 @@
-# dimaskorpi-dimaskorpi.github.io
+# Туйгунов Дим
 Первый сайт
